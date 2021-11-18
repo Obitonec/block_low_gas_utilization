@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is obito35#6490
+
 # Chain Reorganized block agent
 
 ## Описание
